@@ -11,5 +11,5 @@ usually whenever i'm not in island on pt i usually spectate or go offtab and dra
 
 c+h always idm
 
-forsaken fans / protree iwc
+forsaken fans iwc
 </details>
