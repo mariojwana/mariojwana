@@ -5,7 +5,7 @@ my name is lex $${\color{#DE794A}\text{.}}$$ i go by any pronouns, but he / him 
 <details>
   <summary>$${\color{#DE794A}\text{pony town info}}$$</summary>
 
-usually whenever i'm not in island on pt i usually spectate or go offtab and draw, if you don't get a response please whisper and i'll be able to see your message and respond :-) always down to talk, but i'm very awkward and may come off as dry at times. it's not because i'm disinterested or anything i'm just really dry sorry
+usually whenever i'm not in island on pt i usually spectate or go offtab and draw, so if i don't respond that's why. i'm always down to talk, but i'm very awkward and may come off as dry at times. it's not because i'm disinterested or anything i'm just really dry sorry :(
 
 forsaken fans / protree iwc
 </details>
