@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=mariojwana&style=plastic&color=FFC25B&label=views)
+
 <img width="144" height="198" alt="image" src="https://github.com/user-attachments/assets/818a22ba-5f55-437d-9572-a20aea1150dc" />
 
 my name is lex $${\color{#DE794A}\text{.}}$$ i go by any pronouns, but he / him is preferred
@@ -5,7 +7,9 @@ my name is lex $${\color{#DE794A}\text{.}}$$ i go by any pronouns, but he / him 
 <details>
   <summary>$${\color{#DE794A}\text{pony town info}}$$</summary>
 
-usually whenever i'm not in island on pt i usually spectate or go offtab and draw, so if i don't respond that's why. i'm always down to talk, but i'm very awkward and may come off as dry at times. it's not because i'm disinterested or anything i'm just really dry sorry :(
+usually whenever i'm not in island on pt i usually spectate or go offtab and draw, if i don't respond that's why. i'm always down to talk, but i'm very awkward and may come off as dry at times. it's not because i'm disinterested or anything i'm just really dry sorry :(
+
+c+h always idm
 
 forsaken fans / protree iwc
 </details>
